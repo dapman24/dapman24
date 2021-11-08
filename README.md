@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @dapman24
+- 👀 I’m interested in hacking,a.i,python,java,music macking
+- 🌱 I’m currently learning how to make music
+- 💞️ I’m looking to collaborate on hacking,a.i,music macking.
+- 📫 How to reach me mail fbiindia24@gmail.com
+-
